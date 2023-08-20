@@ -6,5 +6,6 @@
 
 ![edu2](https://github.com/shahriar00/Education-Apps-UI/assets/70763173/c4a46064-7270-4eff-8a2e-f7eeccf2693a)
 
+![edu3](https://github.com/shahriar00/Education-Apps-UI/assets/70763173/e0a21003-ec34-4002-a9df-23128e92c94f)
 
 
